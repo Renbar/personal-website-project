@@ -1,0 +1,1 @@
+This is a website to advertise a new business in makeup artistry. 
